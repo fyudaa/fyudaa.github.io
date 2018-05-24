@@ -1,1 +1,3 @@
+# fyudaa.github.io
+
 RGBCMY
