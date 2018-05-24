@@ -1,1 +1,1 @@
-# fyudaa.github.io
+RGBCMY
